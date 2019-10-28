@@ -1,0 +1,2 @@
+# Druga-proba
+Bez Pomocy
